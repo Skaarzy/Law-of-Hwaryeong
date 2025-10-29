@@ -1,0 +1,10 @@
+To the common folk, Hong Chil-gong is nothing more than a filthy, limping beggar with a missing finger and a love for greasy food. He wanders marketplaces with a crooked smile and a patched-up robe, easily dismissed by nobles and guards alike. But behind this harmless facade lies the true Chief of the Beggar Sect, a hidden giant in the shadows of the Jeong Dynasty. Some say the sect's leader, **Hong Chil-gong**, lost his finger in a duel with a demon; others claim he sacrificed it as penance for a moment of reckless rage. No one truly knows the truth, just as few truly know the man himself.
+
+Despite his humble appearance, Hong Chil-gong is a direct advisor to the emperor, serving in the Royal Censorate. He speaks truths no one else dares, caring only about what is right for the people. His **masterful and unique fighting style** makes him unbeatable; even the most skilled nobles dare not offend him, as a single swing of his cane can humiliate their most refined techniques. Hong Chil-gong’s legend continues to grow, as does the reach of his beggars. He remains a nobody who protects everybody, guiding his people and his network from the deepest corners of the Jeong Dynasty. Those who cross him, or the people he protects, learn too late that they have underestimated the true power of the Beggar Sect.
+
+He wields a **walking cane (지팡이, jipang)** with a thick top so it can be used as a baton given to him personally by the emperor, which he moans about endlessly. He never uses it to kill—only to annoy, disarm, or knock out enemies. In his other hand, he carries a **flask (표주박병, pyojubakbyeong)** filled with his favorite drink, which he throws as a weapon or distraction; no matter how drunk he gets, it always returns to his hand. He walks with a **loose, swaying gait**, often singing when intoxicated, and his combat style relies on **weird, unpredictable movements** to defend and incapacitate opponents without lethal force.
+![[Hong Qigong face like he starwing.jpg]]
+![[Hong Qigong messy hair and beard style.jpg]]
+![[Hong Qigong.jpg]]
+![[jipang.jpg]]
+![[jipang 1.jpg]]

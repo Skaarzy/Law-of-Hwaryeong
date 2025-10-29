@@ -1,0 +1,7 @@
+
+**Sim Eon-gun (심언군) – The Jade Sword Immortal**
+Immaculately dressed in flowing, colorful robes of rare silk, stitched with the sect’s insignia, Sim Eon-gun exudes authority and refinement. His white beard is always perfectly trimmed, and his hair meticulously combed and oiled.
+He wields no sword. Instead, he carries a **refined black cane** and a lacquered parasol—not out of necessity, but as symbols of elegance and authority. The cane itself conceals a thin, razor-sharp blade, though he rarely draws it; a mere stomp of the cane can split the ground, demonstrating his latent, overwhelming power.
+A deeply introverted figure, Sim Eon-gun is rarely seen outside the sect’s ancestral halls or ceremonial chambers. He is a master of political maneuvering and internal doctrine, speaking little but decisively. His words can alter sect law, and his counsel is often the final voice before any major decision. Where Dae-gi represents fire, Eon-gun embodies water—calm, unyielding, and subtly unstoppable.
+Though not yet transcended like the Falling Petal Immortal, his reputation precedes him: the world knows him as **The Jade Sword Immortal**. His gaze is said to resemble that of a deity incarnate, and few have witnessed the full extent of his abilities. Legends claim he can split the sky as easily as the ground, and some whisper that the falling stars are falling because he cut them in half. Whether myth or reality, his power consistently upholds the grandeur of the tales surrounding him.
+![[Shen Yanjun.jpg]]
